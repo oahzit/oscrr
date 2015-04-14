@@ -1,9 +1,10 @@
-# Browned Butter Salty Chocolate Chip
+# Browned Butter Salty Chocolate Chip with Nutella
 
 ### General Notes
-Sprinkling the salt before going in the oven made the salt unevenly distributed on the cookie
+Sprinkling with salt AFTER cookie comes out of the oven ensures a more even distribution of salt throughout the cookie
 
 ### Tasting Notes
-* Cookies a bit too sweet
-* Soft and chewy, but not quite soft and chewy enough!
-* Tasty, but not amazing
+* The lowered sugar amount did make the cookie taste less sweet
+* But they were also less chewy??
+* Nutella stuffing is pretty awesome. Though almost redundant given that it's a chocolate chip cookie... with more chocolate
+* Still pretty tasty though!

@@ -1,15 +1,16 @@
-# Browned Butter Salty Chocolate Chip
+# Browned Butter Salty Chocolate Chip with Nutella
 
 ### Ingredients
 2 1/4 cup all-purpose flour
 1 1/4 teaspoons baking soda
 1/4 teaspoon of salt
 2 sticks (8 oz) unsalted butter
-1 1/4 cup packed dark brown sugar
+1 cup packed dark brown sugar
 1 large egg plus 1 egg yolk
-1 1/2 teaspoons vanilla extract
+1 2/3 teaspoons vanilla extract
 2 tablespoon plain greek yogurt
-1 cup semi-sweet chocolate chunks
+1 cup semi-sweet chocolate chips
+1 jar nutella (chilled)
 Fleur de sel for sprinkling
 
 ### Instructions
@@ -26,6 +27,9 @@ Fleur de sel for sprinkling
 7. Preheat the oven to 350 degrees F.
 8. Once dough is chilled measure about 1 1/2 tablespoons of dough and roll into a ball.
 9. Place dough balls on cookie sheet, 2 inches apart.
-10. Sprinkle with salt
-11. Bake the cookies 9-11 minutes or until the edges of the cookies begin to turn golden brown.
+10. Flatten cookie dough.
+11. Place 1 tsp of nutella in center of cookie
+12. "Roll-up" cookie into a ball again
+13. Bake the cookies 9-11 minutes or until the edges of the cookies begin to turn golden brown.
 	* They will look a bit underdone in the middle, but will continue to cook once out of the oven.
+14. Sprinkle with salt as soon as they come out of the oven
