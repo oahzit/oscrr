@@ -1,13 +1,10 @@
-# Browned Butter Salty Chocolate Chip with Caramel
+# Browned Butter Salty Chocolate Chip with Chestnut Paste
 
 ### General Notes
-Used 2oz apple sauce because ran out of butter
-Used salted butter by accident
-Upped salt content to try to make chewier / less sweet cookies
-Switched semi-sweet to dark chocolate chips
+* Upped white sugar content to try to achieve chewier cookies
+* Replaced greek yogurt with milk to try for the same effect
+* Lowered salt content in dough
 
 ### Tasting Notes
-* THIS COOKIE IS AWFUL
-* It tasted salty
-* And not very soft
-* Just don't do this...
+* a little on the sweet side, but VERY chewy and soft!
+* This could be a winner!
