@@ -1,10 +1,13 @@
-# Browned Butter Salty Chocolate Chip with Nutella
+# Browned Butter Salty Chocolate Chip with Caramel
 
 ### General Notes
-Sprinkling with salt AFTER cookie comes out of the oven ensures a more even distribution of salt throughout the cookie
+Used 2oz apple sauce because ran out of butter
+Used salted butter by accident
+Upped salt content to try to make chewier / less sweet cookies
+Switched semi-sweet to dark chocolate chips
 
 ### Tasting Notes
-* The lowered sugar amount did make the cookie taste less sweet
-* But they were also less chewy??
-* Nutella stuffing is pretty awesome. Though almost redundant given that it's a chocolate chip cookie... with more chocolate
-* Still pretty tasty though!
+* THIS COOKIE IS AWFUL
+* It tasted salty
+* And not very soft
+* Just don't do this...
