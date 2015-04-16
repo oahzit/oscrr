@@ -1,5 +1,5 @@
 # Meet OSCRR
-(pronounced Oscar... like the Academy)
+(pronounced Oscar... like the Academy... or the Grouch)
 ## OSCRR = the Open Source Cookie Recipe Repository
 
 ![cookie monster](https://github.com/oahzit/oscrr/blob/master/cookie.jpg)
