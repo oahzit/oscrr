@@ -36,7 +36,6 @@ Fleur de sel for sprinkling
 	* The butter will begin to foam. Whisk consistently.
 	* After a couple of minutes, the butter will begin to brown on the bottom of the saucepan; continue to whisk and remove from heat as soon as the butter begins to brown.
 	* Immediately transfer (THIS IS CRUCIAL TO PREVENT BURNING!!) the butter to a bowl to prevent burning. Set aside to cool for a few minutes.
-
 3. Mix the butter and sugars until thoroughly blended. I hear electric mixer is recommended here, but I just used a whisk and did this by hand.
 4. Add in the egg, yolk, vanilla, and milk until combined.
 5. Add the dry ingredients slowly. Gently fold in all of the chocolate chips.
